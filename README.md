@@ -93,7 +93,7 @@ Ser referência em desenvolvimento de soluções tecnológicas que geram impacto
 
 ## 📫 Contato
 
-📱 Instagram: [@seuuser](https://www.instagram.com/evocore_co/)
+📱 Instagram: [@evocore_co](https://www.instagram.com/evocore_co/)
 
 ---
 
